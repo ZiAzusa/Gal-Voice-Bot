@@ -9,7 +9,7 @@
 4. 根据提示操作即可
 
 ## Release下载:<br>
-网盘下载 链接: https://pan.baidu.com/s/1Q3MYfhfCxvxmuJ41Hmi0QA?pwd=vgpm 提取码: vgpm
+网盘下载 链接: https://pan.baidu.com/s/1Te-rPypiBGsPtbfgXqEjoA?pwd=xr6b 提取码: xr6b
 
 # 支持的说话者
 ## 原神
